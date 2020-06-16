@@ -2,10 +2,10 @@
 
 Back in my journal for Week One I wrote:
 
-   Okay, so I will admit that I did not really read the description for this course before registering in it. I assumed it would be a 
+   "Okay, so I will admit that I did not really read the description for this course before registering in it. I assumed it would be a 
    theoretical course studying important people and projects in digital history. I did not realize that we would be learning about how 
    to  use digital tools in order to be able to produce digital history. I am glad however, that the course is what it is and not what I
-   expected.
+   expected."
    
 If in Week One I said I was glad my assumptions were wrong then, now I am over the moon. I may not have known what I was getting into, but this course has become one of the most beneficial courses I think I will ever take at Carleton. The outcomes of my learning in this course will not only help me with historical argument, but I see it helping me in all areas of my studies and my future as a journalist. 
 
